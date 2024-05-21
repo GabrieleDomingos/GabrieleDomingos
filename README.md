@@ -3,9 +3,7 @@
 ![.](https://github.com/GabrieleDomingos/GabrieleDomingos/assets/170113735/29d3ebe3-b066-4df5-8c3e-fe047712f5c9)
 ![.](https://github.com/GabrieleDomingos/GabrieleDomingos/assets/170113735/02ceaad5-a9f9-4763-bfa8-0d6cb13f62a0)
 
-
-
-
+![Uploading pixel-art-3.gif…]()
 
 
 
