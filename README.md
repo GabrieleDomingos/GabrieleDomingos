@@ -1,9 +1,9 @@
-![gifs-animados-e-imagens-animadas-8013](https://github.com/GabrieleDomingos/GabrieleDomingos/assets/170113735/0d81b7a1-b4b4-47d0-8cf0-405db008e90c)### **Gabriele**
+### **Gabriele**
 ### 3 ano B - tecnologia
 ![.](https://github.com/GabrieleDomingos/GabrieleDomingos/assets/170113735/29d3ebe3-b066-4df5-8c3e-fe047712f5c9)
 ![.](https://github.com/GabrieleDomingos/GabrieleDomingos/assets/170113735/02ceaad5-a9f9-4763-bfa8-0d6cb13f62a0)
-
-![Uploading pixel-art-3.gif…]()
+![.](https://github.com/GabrieleDomingos/GabrieleDomingos/assets/170113735/0f65cade-09d4-473c-8c64-4c9517a23c76)
+![gifs-animados-e-imagens-animadas-8013](https://github.com/GabrieleDomingos/GabrieleDomingos/assets/170113735/0d81b7a1-b4b4-47d0-8cf0-405db008e90c)
 
 
 
